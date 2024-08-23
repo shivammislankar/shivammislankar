@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **shivmislankar2002@gmail.com**
 
-- 📄 Know about my experiences [https://x.com/shivam_says___?t=tW9glhmx0G8yAzX3bqMohA&s=09](https://x.com/shivam_says___?t=tW9glhmx0G8yAzX3bqMohA&s=09)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
